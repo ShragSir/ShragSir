@@ -6,7 +6,7 @@
   Python
 - 💞️ I’m looking to collaborate on
   a new album
-- 📫 How to reach me
+- 📫 How to reach me:
   shragsir@outlook.com or shrashep@outlook.com
 - ⚡ Fun fact:
   I love rubber ducks.

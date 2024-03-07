@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning
   Python
 - 💞️ I’m looking to collaborate on
-  A new album
+  a new album
 - 📫 How to reach me
   shragsir@outlook.com or shrashep@outlook.com
 - ⚡ Fun fact:
